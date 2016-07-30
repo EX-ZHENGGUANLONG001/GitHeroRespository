@@ -1,1 +1,1 @@
-i just wanna be a genius
+i love you
